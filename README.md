@@ -1,0 +1,1 @@
+O programa Start Tech com a Gama Academy está sendo uma ótima oportunidade de aprendizagem. Foco no processo!
